@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with quantitative new token sniper bot | priority-gas-auctions + gas-optimization, the #1 new token sniper bot. Includes priority-gas-auctions and
 
 
 
